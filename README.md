@@ -18,5 +18,5 @@
 - More projects to be added 
 
 > I’m currently building my portfolio to become job-ready.  
-> Let’s connect: [LinkedIn](www.linkedin.com/in/sebolelo-malebelle-716846200) | [Email](mailto:malebelle12@gmail.com)
+> Let’s connect: [LinkedIn](www.linkedin.com/in/sebolelo-malebelle) | [Email](mailto:malebelle12@gmail.com)
 
